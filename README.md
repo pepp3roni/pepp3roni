@@ -1,6 +1,5 @@
-====================
 Contact me:
 Telegram: @pepp3roni
-Discord: pepp3roni_fr
+Discord: xy1lan4ik
 -------------------- 
    
